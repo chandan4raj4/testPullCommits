@@ -1,5 +1,6 @@
 ksjdksjdksdjsk---
 
+newly added text
 #jskaksajkjs11111112211111a11a11----testcommit
 xzxzxzbzbxzx222
 
