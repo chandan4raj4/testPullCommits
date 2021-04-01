@@ -1,16 +1,5 @@
-ksjdksjdksdjsk---
+Point and purpose is the key to understanding types of paragraphs and kinds of paragraphs.
 
-newly added text
-#jskaksajkjs11111112211111a11a11----testcommit
-xzxzxzbzbxzx222---kjakjas
-alklas
-
-kjskjdsjdjskjd
-#teest2-2-2-2#testcommit
-
-added some random text---2
-
-lsjdskd
-smjkdsd
-two
-added something new
+In writing, the words point and purpose are almost synonymous. Your point is your purpose,
+and how you decide to make your point clear to your reader is also your purpose. Writers
+have a point and a purpose for every paragraph that they create.
